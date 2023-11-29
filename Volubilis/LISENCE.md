@@ -1,0 +1,1 @@
+[CC BY-SA 4.0 DEED](https://creativecommons.org/licenses/by-sa/4.0/?ref=chooser-v1) ![image](https://github.com/konbraphat51/Thai_Dictionary_Cleaner/assets/101827492/58aadd67-1c53-47d5-bbda-a80cb5231371)
